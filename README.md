@@ -1,4 +1,4 @@
-## Welcome to videring's Pages
+## Welcome to www.prajina.cn，videring's personal website.
 
 [elementUI中用到哪些sass语法](https://www.jianshu.com/p/ef7a5043c54a)
 
