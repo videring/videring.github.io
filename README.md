@@ -42,6 +42,6 @@
 - [2. 南怀瑾关于大乘佛教和小乘佛教对比分析](https://baijiahao.baidu.com/s?id=1844599376569613130)
 - [3. 五台山寺庙里的楹联](https://baijiahao.baidu.com/s?id=1844851916580065623)
 
-### 更多可点击 [这里](https://author.baidu.com/home?from=bjh_article&app_id=1841886709087975))
+### 更多可点击 [这里](https://author.baidu.com/home?from=bjh_article&app_id=1841886709087975)
 
 ![she](./images/卡通鱼.png)
